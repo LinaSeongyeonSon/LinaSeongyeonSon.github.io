@@ -1,1 +1,0 @@
-# LinaSeongyeonSon.github.io
